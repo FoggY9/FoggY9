@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm FoggY 👋
   
   
 - 🔭 I’m currently working on websites
